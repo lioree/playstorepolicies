@@ -1,0 +1,1 @@
+Count Up does not collect, store, or transmit any personal data.
